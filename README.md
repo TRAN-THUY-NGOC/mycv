@@ -1,0 +1,4 @@
+# MyCV
+Trần Thúy Ngọc
+49.01.103.053
+49.01.SPTIN.B
